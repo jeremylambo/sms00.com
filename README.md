@@ -1,2 +1,7 @@
-# sms00.com
-https://www.sms00.com
+#  [蛋蛋短信 sms00.com](https://www.sms00.com "蛋蛋在线接码平台"). 
+
+# https://www.sms00.com
+
+## www.sms00.com 蛋蛋短信 是一个接码平台，使用它你可以屏蔽掉烦人的骚扰短信、推销电话，最主要的是它可以免费接码，简直不要太神奇的一个在线验证码接收平台。
+
+
